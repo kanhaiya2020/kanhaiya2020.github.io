@@ -1,2 +1,3 @@
 # kanhaiya2020.github.io
-Just trying to test it
+
+Here i am presenting to you my portfolio related to skills and project so you can check and justify to me as suitable candidate for your work.
